@@ -1,2 +1,0 @@
-# swot-analysis
-# swot-analysis
